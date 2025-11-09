@@ -101,7 +101,7 @@ A heartfelt thank you to Shradha Khapra didi and AMAN DHATTARWAL bhaiya at #Apna
 
 Pankar Pratiksha \
 Email: pankarpratiksha50@gmail.com \
-LinkedIn : [https://www.linkedin.com/in/rakhisingh23](https://www.linkedin.com/in/pratiksha-pankar-28b333290)/
+LinkedIn : [[https://www.linkedin.com/in/rakhisingh23](https://www.linkedin.com/in/pratiksha-pankar-28b333290)](https://www.linkedin.com/in/pratiksha-pankar-28b333290?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3B1StMwvtIQJajWZlg9JEzDw%3D%3D)/
 
 ## Thank You
 
